@@ -1,4 +1,4 @@
-### Oii!!! Eu sou Priscilla França 👋👩
+### Oii!!! Eu sou Priscilla França 👋🖥️🙋🏻‍♀️
 
  - 🚀 Em transição de carreira para a área de tecnologia desde 2020
  - 🌱 Atualmente estudando Backend no Reprograma turma On16
