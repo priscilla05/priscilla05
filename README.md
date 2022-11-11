@@ -1,6 +1,7 @@
 ### Oii!!! Eu sou Priscilla França 👋🖥️🙋🏻‍♀️
 
  - 🚀 Em transição de carreira para a área de tecnologia desde 2020
+ - 👩🏻‍💻 Estudante de Análise e Desenvolvimento de Sistemas
  - 🌱 Fui aluna de Backend no Reprograma turma On16
  - 📫 primariafc@gmail.com
 
