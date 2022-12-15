@@ -2,7 +2,7 @@
 
  - 🚀 Em transição de carreira para a área de tecnologia desde 2020
  - 👩🏻‍💻 Estudante de Análise e Desenvolvimento de Sistemas 2022
- - 🌱 Fui aluna de Backend no Reprograma turma On16
+ - 🌱 Fui aluna de Backend no Reprograma turma On16 em 2022
  - 📫 primariafc@gmail.com
 
 
